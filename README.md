@@ -3,4 +3,4 @@
 
 
 
-This is personal website of aashutoshkoirala.com.np
+This is personal website of Aashutosh Koirala
